@@ -13,5 +13,4 @@ mlkjsdlk dfsljs dflkdfsj lkdsfj lksdfj lsdkfj dlsfqj dsflkj qdslkjqds lkqsd ljkq
 mlkjsdlk dfsljs dflkdfsj lkdsfj lksdfj lsdkfj dlsfqj dsflkj qdslkjqds lkqsd ljkqds mlkjsdlk dfsljs dflkdfsj lkdsfj lksdfj lsdkfj dlsfqj dsflkj qdslkjqds lkqsd ljkqds vmlkjsdlk dfsljs dflkdfsj lkdsfj lksdfj lsdkfj dlsfqj dsflkj qdslkjqds lkqsd ljkqds vmlkjsdlk dfsljs dflkdfsj lkdsfj lksdfj lsdkfj dlsfqj dsflkj qdslkjqds lkqsd ljkqdsvmlkjsdlk dfsljs dflkdfsj lkdsfj lksdfj lsdkfj dlsfqj dsflkj qdslkjqds lkqsd ljkqds mlkjsdlk dfsljs dflkdfsj lkdsfj lksdfj lsdkfj dlsfqj dsflkj qdslkjqds lkqsd ljkqds
 
 ## Nom des contributeurs
-Ricardo Ramos
-Marvin Gadois
+Ricardo Ramos, Marvin Gadois
