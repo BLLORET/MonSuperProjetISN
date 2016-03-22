@@ -15,4 +15,4 @@ mlkjsdlk dfsljs dflkdfsj lkdsfj lksdfj lsdkfj dlsfqj dsflkj qdslkjqds lkqsd ljkq
 ## Nom des contributeurs
 Ricardo, Marvin
 Lucas
-Rita
+## Alexandre l'Heritier
